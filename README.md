@@ -1,4 +1,4 @@
-Because you don't reward tantrums.
+Because you don't reward doxxers.
 
 Call it the InternetDog effect.
 
